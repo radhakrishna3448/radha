@@ -1,0 +1,2 @@
+# radha
+The e visa turkey system is simply a way to replace the tedious processes involved in getting stamped or sticker visas issued. In those cases, one has to stand in long queues for days outside the nearest Turkish embassy. One often had to come back two or three more times due to changes in the documents presented needed. It was a long drawn procedure, and in many cases, the agents took extra money for getting the visas done.
